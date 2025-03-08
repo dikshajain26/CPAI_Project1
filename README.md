@@ -11,3 +11,8 @@ https://openwebui.com/m/dikshajain/amitabhbachhan-kapilsharma
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 ## How the model works?
+![image](https://github.com/user-attachments/assets/306784e4-60d6-4a5d-ba81-2b77af95a6c6)
+
+![image (1)](https://github.com/user-attachments/assets/d286dc26-5291-4bad-8497-6f000b0d84d4)
+
+![image (2)](https://github.com/user-attachments/assets/0c0b2bc1-ce35-4c47-910d-b3f12119fd35)
